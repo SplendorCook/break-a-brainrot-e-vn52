@@ -1,4 +1,4 @@
-#  
+#  break a brainrot egg instant Script offers the most advanced break a brainrot egg Script, with fly and auto-farm. Perfect for dominating any match.
 
 
 
